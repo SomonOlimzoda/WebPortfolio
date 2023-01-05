@@ -1,1 +1,1 @@
-https://somonolimzoda.github.io/SomonTheAnalyst.github.io/
+https://somonolimzoda.github.io/portfolio.github.io/
